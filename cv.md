@@ -12,5 +12,5 @@
 
 ## At the previous job I was working with a famous brands as Mercedes, Volvo, Renault, MAN. My main responsibilities was: to line up supply chains from the provider to the company warehouse, maintenance of stocks to service customers trucks faster.
 
-## I have a gigher education: Management, control of the supply chains.
+## I have a higher education: Management, control of the supply chains.
 ## English level - Pre-Intermediate.
