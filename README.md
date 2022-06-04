@@ -1,1 +1,1 @@
-https://youngxronin.github.io/rsschool-cv/cv
+https://youngxronin.github.io/rsschool-cv/
